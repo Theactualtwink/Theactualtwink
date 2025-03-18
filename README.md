@@ -1,5 +1,15 @@
-WUSUSP!! Im Theactualtwink
-I love minecraft and rainworld (yet to play it but really want to)
-Im chronically online! feel free to message me on my dc @riptidemoon 
--------------
-Im the host of a OSDD sys aswell 
+·:*¨༺ ♱✮♱ ༻¨*:·
+
+✩°｡ ⋆⸜ 🎧The Hotel constellation!
+
+★📎 {} .. ask prns
+
+☆💬。・Mainly on ponytown, roblox (Walmartsharkz), crk
+
+★‧₊˚ ☁️⋅ existing in life, idk what to really say in this.
+
+☆・．❕「Osdd sys, if I dont remember you prolly diff alter. 」
+
+
+·:*¨༺ ♱✮♱ ༻¨*:·
+||shoutout to my amazing pookies Kari and Zombikitty ||
